@@ -28,7 +28,8 @@ https://skylumo.cc/
 
 ## 📷 使用截图
 
-低峰期可以看视频，高峰期可能会有点卡顿。
+免费订阅低峰期可以看视频，高峰期可能会有点卡顿。
 
 ![alt text](https://www.ermao.net/assets/image-1-D1lHRY7Y.png)
 
+免费的机场毕竟有人维护，速度可以直接打开4k8k视频
